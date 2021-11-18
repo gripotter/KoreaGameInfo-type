@@ -1,0 +1,1 @@
+# KoreaGameInfo-type
